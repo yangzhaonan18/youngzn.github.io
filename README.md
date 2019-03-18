@@ -1,1 +1,1 @@
-# [youngzn.github.io](http://youngzn.github.io)
+# [youngzn.github.io](http://youngzn.com)
